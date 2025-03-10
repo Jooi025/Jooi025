@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jooi025
-- 🌱 I’m currently a second-year uni student
+
 
 
  
